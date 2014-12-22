@@ -37,12 +37,6 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-Ane
-TREATISE OF
-CONSCIENCE.QVHAIRIN DIvers
-secreits concerning
-that subiect, are
-discovered, as may
 
 1. THE TABLE
 
